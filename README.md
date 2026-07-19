@@ -66,7 +66,7 @@
 
 
 <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100">
-*das me btw*
+
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 </div>
 
