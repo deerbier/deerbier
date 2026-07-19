@@ -62,10 +62,10 @@
                                                                     .:...      ..::::.                                                                               
                                                                            ..                                                                                        
                                                                                    
-*hi im noira*
+*hi im noira, i love talking to people, i look up to my brother <3*
 
 
-<img src="https://i.pinimg.com/1200x/f4/4b/1d/f44b1d2e915343b227ac6941115b4486.jpg" width="300">
+<img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="300">
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ 
 </div>
