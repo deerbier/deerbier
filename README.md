@@ -63,7 +63,7 @@
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·                                                                                   
 C + W ALWAYS!!!
 
-*hewo im noira, , if u play league on euw i need a duo to carry me out of em TwT, i only look up to him <3*
+*hewo im noira, , i like to play vidya and do nothing on ponytown :3, leave me a nice message on my ata plzz i luv answering them!! i only look up to him <3*
 
 
 <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100">
