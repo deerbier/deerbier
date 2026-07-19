@@ -1,6 +1,6 @@
 <div align="center">
 
-![Alt Tag](https://media.gifdb.com/blue-ribbon-with-small-hearts-0f8f6li8g80x7wda.gif)
+![Alt Tag](https://gifdb.com/images/branded/high/blue-ribbon-with-small-hearts-0f8f6li8g80x7wda.gif)
 
 
                                                                                                                                                                      
