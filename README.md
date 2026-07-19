@@ -62,6 +62,7 @@
                                                                            ..                                                                                        
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·                                                                                   
 C + W ALWAYS!!!
+
 *hewo im noira, , if u play league on euw i need a duo to carry me out of em TwT, i only look up to him <3*
 
 
