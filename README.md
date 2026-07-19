@@ -1,6 +1,5 @@
 <div align="center">
 
-![Alt Tag](https://www.bellmer.com/wp-content/uploads/2018/08/bellmer-stammbaum-animation-001-1.png)
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
                                                                                                                                                                      
