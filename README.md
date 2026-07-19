@@ -1,6 +1,7 @@
 <div align="center">
 
 ![Alt Tag](https://64.media.tumblr.com/1dd600929c29d71a2903dbc8d045fa61/034f62f462bcbd55-50/s400x600/14cec8aaf79faa94631d2e8c50b23f3a38363a07.gif)
+· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
 
                                                                                                                                                                      
@@ -61,12 +62,12 @@
                                                                    :     ..           .:.                                                                            
                                                                     .:...      ..::::.                                                                               
                                                                            ..                                                                                        
-                                                                                   
+· · ────── ꒰ঌ·✦·໒꒱ ────── · ·                                                                                   
 *hi im noira, i love talking to people, i look up to my brother <3*
 
 
 <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100">
 
-꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦ 
+· · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 </div>
 
