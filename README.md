@@ -4,8 +4,6 @@
 <img src="https://files.catbox.moe/u5iz3r.png" width="600">
   
 · · ────── ꒰ঌ·✦·໒꒱ ────── · · 
-<br>
-  <br>
   
   ![](https://komarev.com/ghpvc/?username=deerbier&color=4765D3&label=bunies+buried&abbreviated=true)
   <img src="https://files.catbox.moe/i41lgs.png" width="2000">
