@@ -4,6 +4,8 @@
 · · ────── ꒰ঌ·✦·໒꒱ ────── · · 
 <br>
   <br>
+  
+  ![](https://komarev.com/ghpvc/?username=deerbier&color=4765D3&label=bunies+buried&abbreviated=true)
   <img src="https://files.catbox.moe/i41lgs.png" width="2000">
  
     
@@ -16,7 +18,7 @@ C + W ALWAYS!!!
 
 <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100"> <img src="https://images-ext-1.discordapp.net/external/UYNvMkFWktO27gGp_gLm3KBITYl1VD51eEXHQAt3NS8/https/i.postimg.cc/W19d6Lyp/ezgif-65d6158cacbb197f.gif?width=108&height=128" width="50"> 
 
-  ![](https://komarev.com/ghpvc/?username=deerbier&color=4765D3&label=coffins+digged&abbreviated=true)
+  
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 </div>
