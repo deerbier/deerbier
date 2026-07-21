@@ -1,12 +1,10 @@
 <div align="center">
 
+    <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  
   
-  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>  ⠀⠀
-  
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ![](https://komarev.com/ghpvc/?username=deerbier&color=000659&label=coffins+digged&abbreviated=true)
- <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-  
+  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>  
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
                                                                                                                                                                      
                                                       ::.. ..::                                                                                                      
