@@ -4,7 +4,7 @@
 · · ────── ꒰ঌ·✦·໒꒱ ────── · · 
 <br>
   <br>
-  <img src="https://files.catbox.moe/d8sf80.png" width="600">
+  <img src="https://files.catbox.moe/d8sf80.png" width="1000">
  
     
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·    
