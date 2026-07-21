@@ -4,10 +4,9 @@
 · · ────── ꒰ঌ·✦·໒꒱ ────── · · 
 <br>
   <br>
-<pre>
   <img src="https://files.catbox.moe/d8sf80.png" width="600">
  
-         </pre>
+    
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·    
 
 C + W ALWAYS!!!
