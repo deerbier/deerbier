@@ -1,6 +1,8 @@
 <div align="center">
 
 <div align="center">
+<img src="https://files.catbox.moe/u5iz3r.png" width="50">
+  
 · · ────── ꒰ঌ·✦·໒꒱ ────── · · 
 <br>
   <br>
