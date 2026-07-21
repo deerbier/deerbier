@@ -5,7 +5,7 @@
 <br>
   <br>
 <pre>
-  <img src="https://files.catbox.moe/d8sf80.png" width="10000">
+  <img src="https://files.catbox.moe/d8sf80.png" width="600">
  
          </pre>
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·    
