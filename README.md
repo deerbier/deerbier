@@ -1,6 +1,11 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/deerbier&color=dc143c)
+  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  
+  
+  ![](https://komarev.com/ghpvc/?username=deerbier&color=blue&label=coffins+digged&abbreviated=true)
+  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
+  
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
                                                                                                                                                                      
                                                       ::.. ..::                                                                                                      
