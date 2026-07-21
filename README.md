@@ -1,8 +1,6 @@
 <div align="center">
 
-  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
-  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  
-  
+  <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
   ![](https://komarev.com/ghpvc/?username=deerbier&color=blue&label=coffins+digged&abbreviated=true)
   <div>⠀⠀⠀⠀⠀⠀⠀⠀⠀</div>
   
