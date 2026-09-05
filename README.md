@@ -18,7 +18,7 @@
 𝒑𝒍𝒛 𝒓𝒆𝒂𝒅 𝒎𝒊 𝒅𝒏𝒊 𝒍𝒊𝒔𝒕 𝒊𝒏 𝒎𝒚 𝒔𝒕𝒓𝒂𝒘 𝒙𝒙 
 
 
- <img src="https://images-ext-1.discordapp.net/external/UYNvMkFWktO27gGp_gLm3KBITYl1VD51eEXHQAt3NS8/https/i.postimg.cc/W19d6Lyp/ezgif-65d6158cacbb197f.gif" width="95"> <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100"> <img src="https://files.catbox.moe/v38uwx.png" width="100">  <img src="https://files.catbox.moe/vnz878.gif" width="100">
+ <img src="https://images-ext-1.discordapp.net/external/UYNvMkFWktO27gGp_gLm3KBITYl1VD51eEXHQAt3NS8/https/i.postimg.cc/W19d6Lyp/ezgif-65d6158cacbb197f.gif" width="95"> <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100"> <img src="https://files.catbox.moe/v38uwx.png" width="100">
 
 <img src="https://files.catbox.moe/mh33mr.png" width="300">
 
