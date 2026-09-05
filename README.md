@@ -22,8 +22,6 @@
 
 <img src="https://files.catbox.moe/mh33mr.png" width="300">
 
-<img src="https://cdn.jsdelivr.net/gh/free-whiteboard-online/Free-Erasorio-Alternative-for-Collaborative-Design@c4f608ac52f4f19e0d049d1204ff75d3da54b78d/uploads/2026-09-05T04-47-18-223Z-2pviy1ifs.gif" width="100">
-
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
 
