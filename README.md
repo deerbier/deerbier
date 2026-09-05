@@ -18,9 +18,8 @@
 𝒑𝒍𝒛 𝒓𝒆𝒂𝒅 𝒎𝒊 𝒅𝒏𝒊 𝒍𝒊𝒔𝒕 𝒊𝒏 𝒎𝒚 𝒔𝒕𝒓𝒂𝒘 𝒙𝒙 
 
 
- <img src="https://images-ext-1.discordapp.net/external/UYNvMkFWktO27gGp_gLm3KBITYl1VD51eEXHQAt3NS8/https/i.postimg.cc/W19d6Lyp/ezgif-65d6158cacbb197f.gif" width="95"> <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100"> <img src="https://files.catbox.moe/v38uwx.png" width="100"> <img src="https://files.catbox.moe/qdrxh2.gif" width="95">
-
-<img src="https://files.catbox.moe/mh33mr.png" width="300">
+ <img src="https://images-ext-1.discordapp.net/external/UYNvMkFWktO27gGp_gLm3KBITYl1VD51eEXHQAt3NS8/https/i.postimg.cc/W19d6Lyp/ezgif-65d6158cacbb197f.gif" width="95"> <img src="https://i.pinimg.com/736x/92/2a/99/922a99ced8e1cb5bbbad53ce4d1fceae.jpg" width="100"> <img src="https://files.catbox.moe/v38uwx.png" width="100">
+<img src="https://files.catbox.moe/mh33mr.png" width="300"> <img src="https://cdn.discordapp.com/attachments/1464384255936168042/1545654071900508261/ezgif.com-optimize_1.gif?ex=6a9cee07&is=6a9b9c87&hm=210e98799f275cf2de93ca59e2e24b675be9199c134a6b3ec953d20c93d0e1fb&" width="300">
   
 
 · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
